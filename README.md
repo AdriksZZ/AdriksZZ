@@ -3,4 +3,4 @@
 **Meu nome é AdriksZ, estou estudando no Alura**
 
 
-![](https://tenor.com/pt-BR/view/urmom-your-mom-baldi-defaultdance-gif-19665250)
+![](https://media1.tenor.com/m/hCWdwl56lRgAAAAd/urmom-your-mom.gif)
